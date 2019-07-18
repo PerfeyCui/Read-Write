@@ -1,5 +1,6 @@
-# how to rename the repository
+# how to grasp the rhythm of life
 Just a beiginer
+
 *************************************************************************************************************** 2019.7.18
 When graduate from NJUPT, I'm sudenly a beginer in job seeking market and the whole society.
 
